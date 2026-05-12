@@ -1,4 +1,4 @@
-#  
+#  one tap Scripts new is the best one tap Script, featuring auto-collect and unlimited stamina. Safe and powerful for all your needs.
 
 
 
